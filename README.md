@@ -12,4 +12,4 @@
 
 . ݁₊ ⊹ ｡˚  𓂃 hire me 𓂃  ˚₊ ⊹ . ݁  
 [⊹ discord](http://discord.app.com/users/848978363883454494)  
-[⊹ portfolio] revamping
+⊹ portfolio revamping
